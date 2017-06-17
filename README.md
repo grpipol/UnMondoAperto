@@ -1,1 +1,1 @@
-# Un Mondo Aperto - Web
+# Un Mondo Aperto
